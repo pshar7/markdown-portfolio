@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+Accomplishments
+- 7+ Years of customer service
+- Epic user and trainer
